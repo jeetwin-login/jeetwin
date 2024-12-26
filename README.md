@@ -1,5 +1,19 @@
 # JeetWin Login Bangladesh Online Casino
 
+# <a href="https://bit.ly/jeetwinbd">CLICK HERE TO ACCESS</a>
+
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+</head>
+<body>
+
+<div style=<text-align: center;">
+<a href="https://bit.ly/jeetwinbd" title="JeetWin Login"><img src="https://github.com/user-attachments/assets/1018bf81-a607-4cf0-9dc3-5772453ebd19" title="JeetWin Login" alt="JeetWin Login"></a></div>
+<div style=<text-align: center;">
+<a href="https://bit.ly/jeetwinbd">
+<img src="https://github.com/user-attachments/assets/1018bf81-a607-4cf0-9dc3-5772453ebd19" />
+</a></div>
+
 JeetWin Login grants you access to a world of safe and thrilling gaming experiences. Our platform offers everything from sports betting to online casino games, ensuring that users enjoy seamless gameplay. Whether you're a seasoned bettor or new to the scene, JeetWin caters to everyone with exciting features and bonuses.
 
 # Why Choose JeetWin?
